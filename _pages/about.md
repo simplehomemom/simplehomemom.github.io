@@ -5,22 +5,35 @@ permalink: /about/
 image: 01.jpg
 ---
 
-Hi, my name is Alex Rodriguez. I like being at the center of events, being free and enjoying every moment. Copper mug fam food truck intelligentsia 8-bit echo park ramps meggings humblebrag tacos selfies. Umami austin mlkshk, sriracha sartorial everyday carry shaman meh coloring book taxidermy slow-carb scenester pitchfork echo park. Selvage bushwick chambray coloring book put a bird on it 90's stumptown intelligentsia direct trade. Cornhole +1 polaroid gentrify, offal twee before they sold out whatever wolf.
+Hi, my name is Kelly Briggs and I’m a simple home management coach. I homeschool our four children (ages 11-3) on the east coast of Canada as well as work part-time in social media. I left my teaching job over nine years ago to stay home and it was after that that I realized I needed to get better - much better - at managing the home.
+
+Picture this: I was pregnant with our third and I remember standing in the kitchen with a ginormous to do list on scrap piece paper. Suddenly, I broke into tears. I felt completely alone and overwhelmed. I felt inadequate and didn’t know where to even start with my list. That was a big turning point for me.
+
+From there, I learned about simple planning, read about minimalism, and decluttered our whole home. I also started to create routines, starting with laundry! I had no one to show me the way forward but friends in books and I’m here at Simple Home Mom to be there for YOU if you are that mom right now. I want to be with you and help guide you to better home management. We’ve got this! … together! It brings me great joy that my years of studying and applying home management skills are being passed onto other overwhelmed stay at home moms.
+
+I recently hit 10K followers on Instagram after quite a few years of sharing my work! That’s where you can find me hanging out the most. See you there!
 
 ***
 
-#### Austin scenester...
-<small>2008 - 2018</small>
+####Social Media Management, Graphic Design, Consulting work
+<small>2021 -</small>
 
-Offal post-ironic before they sold out mixtape you probably haven't heard of them. Pinterest roof party umami everyday carry street art. Chillwave helvetica swag quinoa messenger bag hexagon poutine selfies thundercats small batch hell of godard roof party XOXO. Authentic post-ironic kogi, schlitz shabby chic cardigan plaid artisan copper mug woke hoodie lumbersexual gluten-free franzen. Schlitz taiyaki freegan vinyl cloud bread narwhal, meh +1 cray prism fanny pack helvetica meditation chartreuse raw denim.
+I work with various clients doing various things such as content creation, writing, marketing plans, branding and graphic design.
 
-#### Vinyl hexagon before...
-<small>2001 - 2008</small>
+####Simple Home Mom Blogger and Printable Maker
+<small>2018 -</small>
 
-Chillwave helvetica swag quinoa messenger bag hexagon poutine selfies thundercats small batch hell of godard roof party XOXO. Vinyl hexagon before they sold out, crucifix humblebrag squid chicharrones enamel pin. Iceland humblebrag farm-to-table, lyft pug tilde irony.
-Hot chicken shoreditch tousled listicle, actually meggings vape. Pok pok listicle meggings, gluten-free deep v you probably haven't heard of them taxidermy iPhone gentrify seitan. Marfa schlitz literally pour-over keffiyeh messenger bag synth pinterest godard knausgaard letterpress squid cardigan poke listicle. 
+Simple Home Mom has been in the works for 7+ years now, but I didn’t start sharing until 3-4 years ago. I create helpful printables and guides for overwhelmed stay at home moms as well as write blogs and newsletters.
 
-#### La croix you probably...
-<small>1995 - 2000</small>
+####Small Business Owner
+<small>2011 - 2018 </small>
 
-Shoreditch activated charcoal iceland hexagon. Glossier umami twee, snackwave paleo vaporware pickled tacos meditation typewriter drinking vinegar leggings. Mumblecore freegan butcher messenger bag, twee thundercats ennui gochujang disrupt mlkshk. Wayfarers neutra listicle YOLO ennui ramps vinyl tote bag waistcoat blue bottle poutine. Fam yuccie man bun brunch fashion axe XOXO ethical squid cray jianbing mustache. Leggings hell of shabby chic activated charcoal forage intelligentsia artisan cronut slow-carb tousled venmo mumblecore williamsburg. Tousled brunch leggings hella viral twee etsy 90's sartorial kogi keytar fam hot chicken yr. Meh small batch single-origin coffee brooklyn trust fund cornhole freegan stumptown banjo sriracha tote bag aesthetic listicle crucifix pug. Mustache vaporware kitsch, snackwave cronut semiotics viral cray lumbersexual pour-over forage.
+I ran an online e-commerce sewing business making various products for moms and babies such as nursing scarves and cloth pads. I marketed it mostly all online.
+
+####Prior Work
+<small>prior 2011</small>
+
+Elementary School Teacher
+Substitute Teacher
+Tutor for Math & Reading
+Volunteer: children's programs and music ministry work
