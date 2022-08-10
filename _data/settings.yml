@@ -38,4 +38,4 @@ google-analytics: # Add your identifier. For example UA-99631805-1.
 
 #-------------------------------
 # Newsletter
-mailchimp: # Add your MailChimp form identifier. For example - https://eepurl.us4.list-manage.com/subscribe?u=581b5bf0ab44ab0870d2a00c0&id=3026fc64c7
+mailchimp: # Add your MailChimp form identifier. For example - 
