@@ -2,7 +2,7 @@
 layout: post
 title:  The Ultimate Daily Chore Checklists that Don't Stress You Out
 date:   2022-08-10 15:01:35 +0300
-image:  chore-checklist.png
+image:  https://simplehomemom.github.io/images/chore-checklist.png
 tags:   Chores
 ---
 Yeah, and if you were the pope they'd be all, "Straighten your pope hat." And "Put on your good vestments." Noooooo! Perhaps, but perhaps your civilization is merely the sewer of an even greater society above you!
