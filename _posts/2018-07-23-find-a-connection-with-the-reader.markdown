@@ -1,51 +1,57 @@
 ---
 layout: post
-title:  The Ultimate Daily Chore Checklists that Don't Stress You Out
-date:   2022-08-10 15:01:35 +0300
-image:  chore-checklist.jpg
-tags:   Chores
+title: The Ultimate Daily Chore Checklists that Don't Stress You Out
+date: 2022-08-10T15:01:35.000+03:00
+image: chore-checklist.jpg
+tags: Chores
+
 ---
-Yeah, and if you were the pope they'd be all, "Straighten your pope hat." And "Put on your good vestments." Noooooo! Perhaps, but perhaps your civilization is merely the sewer of an even greater society above you!
+_I certainly didn’t have chores “figured out” until probably the last couple years. I was spinning wheels and getting mad at chores more often than I’d like in the past because I didn’t know how to, well, tackle them. Learning how to create chore routines was not something I learned growing up. Chores just was something I did. Sort of. And also stressed me out more often than not. Can you relate too?_ If so, this blog is for you. I bring you: **the ultimate chore checklists that don’t stress you out.**
 
-You lived before you met me?! Ow, my spirit! Humans dating robots is sick. __You people wonder why I'm still single?__ *It's 'cause all the fine robot sisters are dating humans!* I guess if you want children beaten, you have to do it yourself.
+_I am going to be sharing with you my valuable chore routines that I share on my_ [_Instagram_](http://www.instagram.com/simplehomemom) _almost daily and give you a deep dive into loop planning with chore routines. A much requested topic!_
 
-## Are you crazy? I can't swallow that.
+### DAILY CHORE CHECKLIST + LOOP CHORE CHECKLIST
 
-Oh, I don't have time for this. I have to go and buy a single piece of fruit with a coupon and then return it, making people wait behind me while I complain. Meh. So, how 'bout them Knicks? Also Zoidberg.
+**But, first download your chore routine printables** [**HERE**](https://mailchi.mp/1962b2e44326/chore-checklists) **because you’ll need them for learning about loop planning through the rest of the blog!**
 
-1. We need rest. The spirit is willing, but the flesh is spongy and bruised.
-2. Fry, we have a crate to deliver.
-3. Have you ever tried just turning off the TV, sitting down with your children, and hitting them?
+These checklists go hand in hand to help you get your chores done and the magic is the loop chore checklist because it helps you tackle those “extra” chores at your own pace. Low/no stress! Woop! But, first. I can hear you asking: “But what does loop planning mean?” Read on to see how loop planning works with my daily chore checklists below.
 
-### Why not indeed!
+**Related:** [How to Develop Cleaning and Tidying Routines in 4 Simple Steps +FREEBIE master cleaning task list](https://www.simplehomemom.com/how-to-develop-cleaning-and-tidying-routines-in-4-simple-steps/)
 
-Nay, I respect and admire Harold Zoid too much to beat him to death with his own Oscar. I don't 'need' to drink. I can quit anytime I want! Soothe us with sweet lies. Bender?! You stole the atom. You don't know how to do any of those.
+![A picture of chore checklist printables on a table next to a plant.](https://www.simplehomemom.com/uploads/untitled-design.png "The Ultimate Daily Chore Checklists that Don't Stress You Out")
 
-* Shinier than yours, meatbag.
-* This is the worst part. The calm before the battle.
-* Ooh, name it after me!
+#### LOOP PLANNING FOR CHORES CRASH COURSE
 
-Say what? Throw her in the brig. Hey, you add a one and two zeros to that or we walk! You guys aren't Santa! You're not even robots. How dare you lie in front of Jesus? Ow, my spirit! Who's brave enough to fly into something we all keep calling a death sphere?
+Loop planning is a fantastic strategy to use with home planning if you want to be consistent, but also don’t want to burn out. And. There are endless uses for loop planning with managing your home. My personal favourite is using a loop planning strategy for those “extra chores”.
 
-Hey, you add a one and two zeros to that or we walk! You won't have time for sleeping, soldier, not with all the bed making you'll be doing. It's okay, Bender. I like cooking too. Hey, what kinda party is this? There's no booze and only one hooker.
+##### So what’s loop planning?
 
-![]({{ site.baseurl }}/images/07.jpg)
-*Minimalism*
+Well, a loop plan is essentially a list of things or tasks that you loop through, with no regard to time. That way you never feel behind or ahead, you know?
 
-Ummm…to eBay? But I know you in the future. I cleaned your poop. I'm just glad my fat, ugly mama isn't alive to see this day. My fellow Earthicans, as I have explained in my book 'Earth in the Balance'', and the much more popular ''Harry Potter and the Balance of Earth', we need to defend our planet against pollution. Also dark wizards.
+**How I organize my daily chore loop plan for those extra chores:**
 
-Your best is an idiot! Fry, you can't just sit here in the dark listening to classical music. And remember, don't do anything that affects anything, unless it turns out you were supposed to, in which case, for the love of God, don't not do it!
+* I have a list of areas that I want to work on (see the loop chore checklist above).
+* I created a master task list to refer to whenever I’m in each area (such as laundry room - wipe windows, vacuum behind washer and so on).
+* Currently I go through the loop on Monday-Thursday.
+* I decide what I want to do when I’m working on an area and then move on when I’m done (whenever that happens to be). I worked on the master bedroom windows and decluttering a couple things this week in my closet! Sometimes I’m just focusing on cleaning or just decluttering. I decide what to do each day in my loop chore area. Right now I’m doing it all because the house really needs it all (organizing, maintenance decluttering, cleaning).
 
-You, a bobsleder!? That I'd like to see! I'm Santa Claus! There's no part of that sentence I didn't like! Noooooo! I can explain. It's very valuable.
+You can also do loop chores by ACTIVITY such as with: mopping, vacuuming, dusting or with cleaning toilets, cleaning the tub, cleaning the windows, mopping the floor (repeat). The options are completely endless with loop planning, but I love using my area method because it’s easy to keep track of and I can prioritize what needs to be done each time. I can go through quickly or slowly depending on what mood or season of life I’m in.
 
-I'm Santa Claus! Is the Space Pope reptilian!? Who's brave enough to fly into something we all keep calling a death sphere? I had more, but you go ahead.
+_I promise you that loop planning becomes easier with practice too!_
 
-It doesn't look so shiny to me. Kif might! You guys aren't Santa! You're not even robots. How dare you lie in front of Jesus? Oh, but you can. But you may have to metaphorically make a deal with the devil. And by "devil", I mean Robot Devil. And by "metaphorically", I mean get your coat.
+**Save for future reference:**
 
-Check it out, y'all. Everyone who was invited is here. Anyone who laughs is a communist! You're going to do his laundry? Michelle, I don't regret this, but I both rue and lament it.
+![Blog graphic](https://www.simplehomemom.com/uploads/the-ultimate-daily-chore-checklists-that-don-t-stress-you-out.png "The Ultimate Daily Chore Checklists that Don't Stress You Out SHM")
 
-Bender, we're trying our best. I daresay that Fry has discovered the smelliest object in the known universe! Oh, you're a dollar naughtier than most. Hi, I'm a naughty nurse, and I really need someone to talk to. $9.95 a minute.
+##### MORE LOOP PLANNING:
 
-You, a bobsleder!? That I'd like to see! No! The kind with looting and maybe starting a few fires! Good news, everyone! There's a report on TV with some very bad news! When I was first asked to make a film about my nephew, Hubert Farnsworth, I thought "Why should I?" Then later, Leela made the film. But if I did make it, you can bet there would have been more topless women on motorcycles. Roll film!
+* Videos on loop planning I’ve done [HERE](https://www.instagram.com/p/CTzLnadj5OS/) and [HERE](https://www.instagram.com/p/CeElgpKJrsk/)
+* Post: [3 reasons why you need to use loop planning](https://www.instagram.com/p/CeElgpKJrsk/)
+* Blog: [The Ultimate Stress Free Planning Method Anyone Can Use](https://www.simplehomemom.com/the-ultimate-stress-free-planning-method-anyone-can-use/)
 
-Eeeee! Now say "nuclear wessels"! Why did you bring us here? Yeah, and if you were the pope they'd be all, "Straighten your pope hat." And "Put on your good vestments." That's the ONLY thing about being a slave.
+##### OTHER HELPFUL BLOGS ON CHORES:
+
+* [Throw Out the Cleaning Routine and Try This Instead](https://www.simplehomemom.com/throw-out-the-cleaning-routine-and-try-this-instead/)
+* [How to Design a Simple Cleaning Routine](https://www.simplehomemom.com/how-to-design-a-simple-cleaning-routine/)
+* [The complete household chores list](https://bungalow.com/articles/the-complete-household-chores-list)
+* [22 Chore Ideas for Every Type of Kid](https://www.parents.com/toddlers-preschoolers/development/behavioral/chores-for-kids/)
