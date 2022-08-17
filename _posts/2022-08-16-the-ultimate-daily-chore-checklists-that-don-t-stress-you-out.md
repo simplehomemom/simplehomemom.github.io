@@ -2,7 +2,7 @@
 layout: post
 title: The Ultimate Daily Chore Checklists that Don't Stress You Out
 date: 2022-08-16 03:00:00 +0000
-image: "/uploads/shm-website-graphic-front.png"
+image: "/uploads/chore-checklists-shm.jpg"
 tags: chores
 
 ---
