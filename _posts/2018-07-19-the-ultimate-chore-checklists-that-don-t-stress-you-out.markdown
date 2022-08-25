@@ -48,7 +48,6 @@ _I promise you that loop planning becomes easier with practice too!_
 
 * Videos on loop planning I’ve done [HERE](https://www.instagram.com/p/CTzLnadj5OS/) and [HERE](https://www.instagram.com/p/CeElgpKJrsk/)
 * Post: [3 reasons why you need to use loop planning](https://www.instagram.com/p/CeElgpKJrsk/)
-* Blog: [The Ultimate Stress Free Planning Method Anyone Can Use](https://www.simplehomemom.com/the-ultimate-stress-free-planning-method-anyone-can-use/)
 
 ##### OTHER HELPFUL BLOGS ON CHORES:
 
