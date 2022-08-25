@@ -23,13 +23,13 @@ These checklists go hand in hand to help you get your chores done and the magic 
 
 #### LOOP PLANNING FOR CHORES CRASH COURSE
 
-Loop planning is a fantastic strategy to use with home planning if you want to be consistent, but also don’t want to burn out. And. There are endless uses for loop planning with managing your home. My personal favourite is using a loop planning strategy for those “extra chores”.
+Loop planning is a fantastic strategy to use with home planning if you want to be consistent, but also don’t want to burn out. And. There are endless uses for loop planning with managing your home. My personal favourite is using a loop planning strategy for those “extra chores”. I originally heard about [loop planning in the homeschooling world](https://pambarnhill.com/loop-scheduling/). It's been a game-changing strategy for me in so many areas of my life!
 
-##### So what’s loop planning?
+**So what’s loop planning?**
 
 Well, a loop plan is essentially a list of things or tasks that you loop through, with no regard to time. That way you never feel behind or ahead, you know?
 
-**How I organize my daily chore loop plan for those extra chores:**
+**HOW I ORGANIZE MY DAILY CHORE LOOP PLAN FOR THOSE EXTRA CHORES:**
 
 * I have a list of areas that I want to work on (see the loop chore checklist above).
 * I created a master task list to refer to whenever I’m in each area (such as laundry room - wipe windows, vacuum behind washer and so on).
