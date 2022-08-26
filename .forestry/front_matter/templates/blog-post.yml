@@ -17,3 +17,5 @@ fields:
 - type: text
   name: tags
   label: tags
+pages:
+- _posts/2021-05-05-how-to-unscramble-your-brain-with-a-braindump.md
