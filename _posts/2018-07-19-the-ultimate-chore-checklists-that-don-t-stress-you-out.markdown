@@ -19,7 +19,7 @@ These checklists go hand in hand to help you get your chores done and the magic 
 
 **Related:** [How to Develop Cleaning and Tidying Routines in 4 Simple Steps +FREEBIE master cleaning task list](https://www.simplehomemom.com/how-to-develop-cleaning-and-tidying-routines-in-4-simple-steps/)
 
-![A picture of chore checklist printables on a table next to a plant.](https://www.simplehomemom.com/uploads/untitled-design.png "The Ultimate Daily Chore Checklists that Don't Stress You Out")
+![A picture of chore checklist printables on a table next to a plant.](chore-checklists2.jpg "The Ultimate Daily Chore Checklists that Don't Stress You Out")
 
 #### LOOP PLANNING FOR CHORES CRASH COURSE
 
@@ -42,7 +42,7 @@ _I promise you that loop planning becomes easier with practice too!_
 
 **Save for future reference:**
 
-![Blog graphic](https://www.simplehomemom.com/uploads/the-ultimate-daily-chore-checklists-that-don-t-stress-you-out.png "The Ultimate Daily Chore Checklists that Don't Stress You Out SHM")
+![Blog graphic](the-ultimate-daily-chore-checklists-that-don-t-stress-you-out-shm.jpg "The Ultimate Daily Chore Checklists that Don't Stress You Out SHM")
 
 ##### MORE LOOP PLANNING:
 
