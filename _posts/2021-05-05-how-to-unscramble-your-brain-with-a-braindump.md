@@ -40,12 +40,6 @@ _Ok, now we all understand what a braindump specifically is now. Right? Does bra
 
 Braindumping to unscramble your brain is a relatively simple concept and when put into practice, it can be so helpful. Make sure to have supplies on hand, braindump as needed, and enjoy!
 
-# FREE braindump printable planning page
-
-![A picture of the braindump printable planning pages.](https://www.simplehomemom.com/uploads/braindump-printable-planner-pages.jpg "How to Unscramble Your Brain with a Braindump Printables SHM")
-
-If braindumping is new to you or you just enjoy freebie planning pages, you may enjoy the braindumping printable planning page I put together. You can find that braindump printable [HERE](https://mailchi.mp/df5816e44b8d/braindump-planner-pages).
-
 # Want to get better at simple planning? FREE planning class
 
 _I also have a FREE class on beginner planning basics in my freebie vault. You can gain access to that by being on my mail list. Signup at the bottom of my blog and you’ll receive a link to the vault in your confirmation email._
