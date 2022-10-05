@@ -13,13 +13,13 @@ _I am going to be sharing with you my valuable chore routines that I share on my
 
 ### DAILY CHORE CHECKLIST + LOOP CHORE CHECKLIST
 
-**But, first download your free chore routine printables** [**HERE**](https://mailchi.mp/1962b2e44326/chore-checklists) **because you’ll need them for learning about loop planning through the rest of the blog!**
+**But, first download your free chore routine printables** [**HERE**](https://tinyletter.com/simplehomemom) **because you’ll need them for learning about loop planning through the rest of the blog!**
 
 These checklists go hand in hand to help you get your chores done and the magic is the loop chore checklist because it helps you tackle those “extra” chores at your own pace. Low/no stress! Woop! But, first. I can hear you asking: “But what does loop planning mean?” Read on to see how loop planning works with my daily chore checklists below.
 
 **Related:** [How to Develop Cleaning and Tidying Routines in 4 Simple Steps +FREEBIE master cleaning task list](https://www.simplehomemom.com/how-to-develop-cleaning-and-tidying-routines-in-4-simple-steps/)
 
-![A picture of chore checklist printables on a table next to a plant.](https://www.simplehomemom.github.io.com/images/chore-checklist2.jpg "The Ultimate Daily Chore Checklists that Don't Stress You Out")
+![A picture of chore checklist printables on a table next to a plant.](https://www.simplehomemom.github.io.com/images/chore-checklist2.jpg 
 
 #### LOOP PLANNING FOR CHORES CRASH COURSE
 
