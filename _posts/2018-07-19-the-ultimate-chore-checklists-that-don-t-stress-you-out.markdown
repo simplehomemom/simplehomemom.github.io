@@ -19,7 +19,7 @@ These checklists go hand in hand to help you get your chores done and the magic 
 
 **Related:** [How to Develop Cleaning and Tidying Routines in 4 Simple Steps +FREEBIE master cleaning task list](https://www.simplehomemom.com/how-to-develop-cleaning-and-tidying-routines-in-4-simple-steps/) ---coming soon!
 
-![A picture of chore checklist printables on a table next to a plant.](https://www.simplehomemom.github.io.com/images/chore-checklist.jpg) 
+![A picture of chore checklist printables on a table next to a plant.](https://www.simplehomemom.github.io.com/images/chore-checklist.jpg)  
 
 #### LOOP PLANNING FOR CHORES CRASH COURSE
 
