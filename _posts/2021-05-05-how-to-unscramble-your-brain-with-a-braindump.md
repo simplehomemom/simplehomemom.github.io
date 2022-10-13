@@ -36,7 +36,7 @@ Ok, now we all understand what a braindump specifically is now. Right? Does brai
 * Keep a notebook or digital notepad handy for those times you really need to write things down. I’m a big fan of [bullet journaling](https://www.tinyrayofsunshine.com/blog/bullet-journal-guide). So much so that after years of bullet journaling, I created my own simple planner that’s based on the method, but has a twist that’s uniquely mine. You can check out my planner called _My Simple Planner_ [HERE](https://checkout.stripe.com/pay/cs_live_a17VWxl5dPsNfr8rHt4B1l3kRSSPeSz6Ybx9I7EDIyaxRiYTWpVrH0RK0K#fidkdWxOYHwnPyd1blppbHNgWjA0T1FER31HQU9yUnJyMzJzUklDRGd3TEZHRlJVNGJJVUhvbm5haXdGN2BQdEJmRkprbnJCfWBHSjB1aWJxQ1w3S05tf0hUTVR0aE52PUlNYmYzYEo9T09ENTVBaExHUE5qbScpJ3VpbGtuQH11anZgYUxhJz8nNz1qNTdkMlJGYFJQYWdsNmZiJyknd2BjYHd3YHcnPydtcXF1dj8qKnJycit2bGh1aWBtamhgaGpoK2ZqaConeCUl).
 * Add to your braindump as you go throughout the day (because there’s nothing more annoying than waking up at 3am remembering something lol! Been there).
 * Revisit your braindump when feeling less scrambled eggs and decide what to do with those things. Move, remove, or get done.
-* *Here are more tips on a blog [here](https://www.lifehack.org/articles/productivity/how-to-do-the-ultimate-brain-dump.html) on braindumping.
+* Here is another blog that has more braindumping tips [here](https://www.lifehack.org/articles/productivity/how-to-do-the-ultimate-brain-dump.html).
 
 Braindumping to unscramble your brain is a relatively simple concept and when put into practice, it can be so helpful. Make sure to have supplies on hand, braindump as needed, and enjoy!
 
