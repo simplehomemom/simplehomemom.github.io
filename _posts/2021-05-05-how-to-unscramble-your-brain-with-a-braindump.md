@@ -15,7 +15,7 @@ Having too many ideas and not jotting them down somehere can lead to a scrambly 
 
 ![]({{ https://www.simplehomemom.github.io.com }}/images/braindump.jpg) 
 
-#### So what’s a braindump?
+### So what’s a braindump?
 
 In my definition: A braindump is essentially writing your “brain down on paper”. It’s writing down everything and anything (usually tasks or ideas) that comes to mind that keeps floating around in there. You can get fancier by categorizing or [prioritizing too](https://www.simplehomemom.com/how-a-priority-pyramid-can-change-your-life/).
 
