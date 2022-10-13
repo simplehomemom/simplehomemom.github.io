@@ -12,7 +12,7 @@ Scrambled eggs brain. Does that sound familiar sometimes? I know it does for me.
 
 Having too many ideas and not jotting them down somehere can lead to a scrambly brain. Enter braindumping.
 
-![(https://www.simplehomemom.com/uploads/how-to-unscramble-your-brain-with-a-braindump-shm.jpg)
+![(https://www.simplehomemom.github.io.com/images/braindump.jpg)]
 
 #### So what’s a braindump?
 
