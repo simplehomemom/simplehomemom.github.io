@@ -40,10 +40,6 @@ _Ok, now we all understand what a braindump specifically is now. Right? Does bra
 
 Braindumping to unscramble your brain is a relatively simple concept and when put into practice, it can be so helpful. Make sure to have supplies on hand, braindump as needed, and enjoy!
 
-# Want to get better at simple planning? FREE planning class
-
-_I also have a FREE class on beginner planning basics in my freebie vault. You can gain access to that by being on my mail list. Signup at the bottom of my blog and you’ll receive a link to the vault in your confirmation email._
-
 ![Pen lying on a notebook with the title of the blog over top of it.](https://www.simplehomemom.com/uploads/how-to-unscramble-your-brain-with-a-braindump-shm-blog.png "How to Unscramble Your Brain with a Braindump SHM")
 
 **Other blogs of mine you may enjoy:**
