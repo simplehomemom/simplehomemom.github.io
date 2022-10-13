@@ -13,7 +13,9 @@ Having too many ideas and not jotting them down somehere can lead to a scrambly 
 <b>_“Your mind is for having ideas, not holding them. There is no reason to ever have the same thought twice, unless you like having that thought.”_<b>
 
 — [David Allen](https://gettingthingsdone.com/), author of [_Getting Things Done_](https://fourminutebooks.com/getting-things-done-summary/#:\\\~:text=1%2DSentence%2DSummary%3A%20Getting,on%20the%20task%20at%20hand.)
+
 <br>
+
 # SO WHAT'S A BRAINDUMP?
 
 In my definition: A braindump is essentially writing your “brain down on paper”. It’s writing down everything and anything (usually tasks or ideas) that comes to mind that keeps floating around in there. You can get fancier by categorizing or prioritizing too.
