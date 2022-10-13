@@ -8,7 +8,7 @@ tags: planning
 ---
 Scrambled eggs brain. Does that sound familiar sometimes? I know it does for me. We may feel scrambled when we have a lot on our brains – when we’re thinking about all of the tasks and ideas that keep floating around, especially as overwhelmed stay at home moms. And then the next thing we know, we forget what they were. We then need to unscramble those things we forget about. Sound familiar? Today on the blog, I’m sharing about <b>how to unscramble your brain with a braindump. <b> Having too many ideas and not jotting them down somehere can lead to a scrambly brain. Enter braindumping to help!
 
-#### “Your mind is for having ideas, not holding them. There is no reason to ever have the same thought twice, unless you like having that thought.” 
+_“Your mind is for having ideas, not holding them. There is no reason to ever have the same thought twice, unless you like having that thought.”_
 — [David Allen](https://gettingthingsdone.com/), author of [_Getting Things Done_](https://fourminutebooks.com/getting-things-done-summary/#:\\\~:text=1%2DSentence%2DSummary%3A%20Getting,on%20the%20task%20at%20hand.)
 
 
@@ -18,15 +18,13 @@ Scrambled eggs brain. Does that sound familiar sometimes? I know it does for me.
 
 In my definition: A braindump is essentially writing your “brain down on paper”. It’s writing down everything and anything (usually tasks or ideas) that comes to mind that keeps floating around in there. You can get fancier by categorizing or prioritizing too.
 
-#### "Definition of a brain dump: the act or an instance of comprehensively and uncritically expressing and recording one’s thoughts and ideas (as on a particular topic). Instead, Shafer recommends doing a brain dump—getting workflow, ideas, commitments, and to-do lists out of your head and onto a physical list and calendar."
+_"Definition of a brain dump: the act or an instance of comprehensively and uncritically expressing and recording one’s thoughts and ideas (as on a particular topic). Instead, Shafer recommends doing a brain dump—getting workflow, ideas, commitments, and to-do lists out of your head and onto a physical list and calendar."_
 — Stephanie Vozza
 
-#### "First", you do a giant brain dump to force yourself to clear out the mental clutter and face head-on all the contradictory goals and obligations that are crowding your days."  
+_"First", you do a giant brain dump to force yourself to clear out the mental clutter and face head-on all the contradictory goals and obligations that are crowding your days."_ 
 — Jessica Stillman
 
-([from the Merriam Webster dictionary](https://www.merriam-webster.com/dictionary/brain%20dump))
-
-_Ok, now we all understand what a braindump specifically is now. Right? Does braindumping sound good yet? Need a good braindump right now?_
+Ok, now we all understand what a braindump specifically is now. Right? Does braindumping sound good yet? Need a good braindump right now?
 
 # How to unscramble your brain with a braindump: tips for making braindumps
 
