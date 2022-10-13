@@ -39,6 +39,10 @@ _Ok, now we all understand what a braindump specifically is now. Right? Does bra
 
 Braindumping to unscramble your brain is a relatively simple concept and when put into practice, it can be so helpful. Make sure to have supplies on hand, braindump as needed, and enjoy!
 
+CTAAAA Freebie chore checklistttttttttttttttttttttt
+OIOSFD
+SNKFDSNKSF
+
 ![Pen lying on a notebook with the title of the blog over top of it.](https://www.simplehomemom.com/uploads/how-to-unscramble-your-brain-with-a-braindump-shm-blog.png "How to Unscramble Your Brain with a Braindump SHM")
 
 **Other blogs on braindumping:**
