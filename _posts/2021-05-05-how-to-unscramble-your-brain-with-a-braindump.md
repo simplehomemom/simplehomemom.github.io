@@ -8,7 +8,7 @@ tags: planning
 ---
 Scrambled eggs brain. Does that sound familiar sometimes? I know it does for me. We may feel scrambled when we have a lot on our brains – when we’re thinking about all of the tasks and ideas that keep floating around, especially as busy stay at home moms. And then the next thing we know, we forget what they were. We then need to unscramble those things we forget about. Sound familiar? Today on the blog, I’m sharing about <b>how to unscramble your brain with a braindump.<b>
 
-“Your mind is for having ideas, not holding them. There is no reason to ever have the same thought twice, unless you like having that thought.” - [David Allen](https://gettingthingsdone.com/), author of [_Getting Things Done_](https://fourminutebooks.com/getting-things-done-summary/#:\\\~:text=1%2DSentence%2DSummary%3A%20Getting,on%20the%20task%20at%20hand.)
+#### “Your mind is for having ideas, not holding them. There is no reason to ever have the same thought twice, unless you like having that thought.” - [David Allen](https://gettingthingsdone.com/), author of [_Getting Things Done_](https://fourminutebooks.com/getting-things-done-summary/#:\\\~:text=1%2DSentence%2DSummary%3A%20Getting,on%20the%20task%20at%20hand.)
 
 Having too many ideas and not jotting them down somehere can lead to a scrambly brain. Enter braindumping.
 
@@ -24,7 +24,7 @@ Definition of a brain dump: the act or an instance of comprehensively and uncrit
 Instead, Shafer recommends doing a brain dump—getting workflow, ideas, commitments, and to-do lists out of your head and onto a physical list and calendar.  
 — Stephanie Vozza
 
-First, you do a giant brain dump to force yourself to clear out the mental clutter and face head-on all the contradictory goals and obligations that are crowding your days.  
+#### First, you do a giant brain dump to force yourself to clear out the mental clutter and face head-on all the contradictory goals and obligations that are crowding your days.  
 — Jessica Stillman
 
 ([from the Merriam Webster dictionary](https://www.merriam-webster.com/dictionary/brain%20dump))
