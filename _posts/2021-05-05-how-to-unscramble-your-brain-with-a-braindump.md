@@ -30,7 +30,7 @@ In my definition: A braindump is essentially writing your “brain down on paper
 — Jessica Stillman
 
 Ok, now we all understand what a braindump specifically is now. Right? Does braindumping sound good yet? Need a good braindump right now?
-
+<br>
 
 # How to unscramble your brain with a braindump: tips for making braindumps
 
