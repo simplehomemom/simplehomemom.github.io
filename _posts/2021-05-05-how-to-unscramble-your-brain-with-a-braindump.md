@@ -40,8 +40,7 @@ Ok, now we all understand what a braindump specifically is now. Right? Does brai
 * Revisit your braindump when feeling less scrambled eggs and decide what to do with those things. Move, remove, or get done.
 
 * Here is another blog that has more braindumping tips [here](https://www.lifehack.org/articles/productivity/how-to-do-the-ultimate-brain-dump.html).
-
-
+<br>
 Braindumping to unscramble your brain is a relatively simple concept and when put into practice, it can be so helpful. Make sure to have supplies on hand, braindump as needed, and enjoy!
 
 CTAAAA Freebie chore checklistttttttttttttttttttttt
