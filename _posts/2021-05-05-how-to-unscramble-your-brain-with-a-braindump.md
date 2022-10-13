@@ -18,7 +18,7 @@ Scrambled eggs brain. Does that sound familiar sometimes? I know it does for me.
 
 In my definition: A braindump is essentially writing your “brain down on paper”. It’s writing down everything and anything (usually tasks or ideas) that comes to mind that keeps floating around in there. You can get fancier by categorizing or prioritizing too.
 
-#### Definition of a brain dump: the act or an instance of comprehensively and uncritically expressing and recording one’s thoughts and ideas (as on a particular topic). Instead, Shafer recommends doing a brain dump—getting workflow, ideas, commitments, and to-do lists out of your head and onto a physical list and calendar.  
+#### "Definition of a brain dump: the act or an instance of comprehensively and uncritically expressing and recording one’s thoughts and ideas (as on a particular topic). Instead, Shafer recommends doing a brain dump—getting workflow, ideas, commitments, and to-do lists out of your head and onto a physical list and calendar."
 — Stephanie Vozza
 
 #### "First", you do a giant brain dump to force yourself to clear out the mental clutter and face head-on all the contradictory goals and obligations that are crowding your days."  
