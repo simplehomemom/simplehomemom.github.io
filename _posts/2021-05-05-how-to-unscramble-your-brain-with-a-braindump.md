@@ -26,6 +26,7 @@ In my definition: A braindump is essentially writing your “brain down on paper
 — Stephanie Vozza
 
 <b>_"First", you do a giant brain dump to force yourself to clear out the mental clutter and face head-on all the contradictory goals and obligations that are crowding your days."_<b>
+
 — Jessica Stillman
 
 Ok, now we all understand what a braindump specifically is now. Right? Does braindumping sound good yet? Need a good braindump right now?
