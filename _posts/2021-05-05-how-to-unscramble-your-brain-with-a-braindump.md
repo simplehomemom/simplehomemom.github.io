@@ -41,7 +41,7 @@ CTAAAA Freebie chore checklistttttttttttttttttttttt
 OIOSFD
 SNKFDSNKSF
 
-![Pen lying on a notebook with the title of the blog over top of it.](https://www.simplehomemom.com/uploads/how-to-unscramble-your-brain-with-a-braindump-shm-blog.png "How to Unscramble Your Brain with a Braindump SHM")
+![Woman writing in a planner at a desk behind the title of this blog.]({{ https://www.simplehomemom.github.io.com }}/images/how-to-unscramble-your-brain-with-a-braindump-SHM.jpg) 
 
 **Other blogs on braindumping:**
 
