@@ -42,14 +42,6 @@ Braindumping to unscramble your brain is a relatively simple concept and when pu
 
 ![Pen lying on a notebook with the title of the blog over top of it.](https://www.simplehomemom.com/uploads/how-to-unscramble-your-brain-with-a-braindump-shm-blog.png "How to Unscramble Your Brain with a Braindump SHM")
 
-**Other blogs of mine you may enjoy:**
-
-* [10 Ways to Simplify Your to do List](https://www.simplehomemom.com/10-ways-to-simplify-your-to-do-list/)
-* [The Ultimate Stress Free Planning Method Anyone Can Use](https://www.simplehomemom.com/the-ultimate-stress-free-planning-method-anyone-can-use/)
-* [Four Ways to be Realistic with Your to do List](https://www.simplehomemom.com/four-ways-to-be-realistic-with-your-to-do-list/)
-* [How a Running to Do List Can Help Simplify Your Week](https://www.simplehomemom.com/how-a-running-to-do-list-can-help-simplify-your-weeks/)
-* And under the tag [simple planning](https://www.simplehomemom.com/tags/#simple%20planning).
-
 **Other blogs on braindumping:**
 
 * [8 Easy Brain Dump Ideas](https://letsliveandlearn.com/brain-dump-ideas/)
