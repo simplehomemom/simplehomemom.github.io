@@ -6,18 +6,18 @@ image: braindump.jpg
 tags: planning
 
 ---
-Scrambled eggs brain. Does that sound familiar sometimes? I know it does for me. We may feel scrambled when we have a lot on our brains – when we’re thinking about all of the tasks and ideas that keep floating around, especially as busy stay at home moms. And then the next thing we know, we forget what they were. We then need to unscramble those things we forget about. Sound familiar? Today on the blog, I’m sharing about <b>how to unscramble your brain with a braindump.<b>
+Scrambled eggs brain. Does that sound familiar sometimes? I know it does for me. We may feel scrambled when we have a lot on our brains – when we’re thinking about all of the tasks and ideas that keep floating around, especially as overwhelmed stay at home moms. And then the next thing we know, we forget what they were. We then need to unscramble those things we forget about. Sound familiar? Today on the blog, I’m sharing about <b>how to unscramble your brain with a braindump.<b>
 
 #### “Your mind is for having ideas, not holding them. There is no reason to ever have the same thought twice, unless you like having that thought.” 
 — [David Allen](https://gettingthingsdone.com/), author of [_Getting Things Done_](https://fourminutebooks.com/getting-things-done-summary/#:\\\~:text=1%2DSentence%2DSummary%3A%20Getting,on%20the%20task%20at%20hand.)
 
-Having too many ideas and not jotting them down somehere can lead to a scrambly brain. Enter braindumping.
+Having too many ideas and not jotting them down somehere can lead to a scrambly brain. Enter braindumping to help!
 
 ![]({{ https://www.simplehomemom.github.io.com }}/images/braindump.jpg) 
 
 ### So what’s a braindump?
 
-In my definition: A braindump is essentially writing your “brain down on paper”. It’s writing down everything and anything (usually tasks or ideas) that comes to mind that keeps floating around in there. You can get fancier by categorizing or [prioritizing too](https://www.simplehomemom.com/how-a-priority-pyramid-can-change-your-life/).
+In my definition: A braindump is essentially writing your “brain down on paper”. It’s writing down everything and anything (usually tasks or ideas) that comes to mind that keeps floating around in there. You can get fancier by categorizing or prioritizing too.
 
 **Other braindump descriptions:**
 
