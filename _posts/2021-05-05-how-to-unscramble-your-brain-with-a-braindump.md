@@ -23,7 +23,7 @@ In my definition: A braindump is essentially writing your “brain down on paper
 Definition of a brain dump: the act or an instance of comprehensively and uncritically expressing and recording one’s thoughts and ideas (as on a particular topic). Instead, Shafer recommends doing a brain dump—getting workflow, ideas, commitments, and to-do lists out of your head and onto a physical list and calendar.  
 — Stephanie Vozza
 
-#### First, you do a giant brain dump to force yourself to clear out the mental clutter and face head-on all the contradictory goals and obligations that are crowding your days.  
+#### "First", you do a giant brain dump to force yourself to clear out the mental clutter and face head-on all the contradictory goals and obligations that are crowding your days."  
 — Jessica Stillman
 
 ([from the Merriam Webster dictionary](https://www.merriam-webster.com/dictionary/brain%20dump))
