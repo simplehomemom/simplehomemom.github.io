@@ -14,7 +14,7 @@ Scrambled eggs brain. Does that sound familiar sometimes? I know it does for me.
 
 ![]({{ https://www.simplehomemom.github.io.com }}/images/braindump.jpg) 
 
-### So what’s a braindump?
+# SO WHAT'S A BRAINDUMP?
 
 In my definition: A braindump is essentially writing your “brain down on paper”. It’s writing down everything and anything (usually tasks or ideas) that comes to mind that keeps floating around in there. You can get fancier by categorizing or prioritizing too.
 
