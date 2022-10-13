@@ -50,7 +50,7 @@ SNKFDSNKSF
 
 PART OF PROBLEM WITH BRAINDUMPING...SOLUTION> writing it down aka in one of my planners!!
 
-![Woman writing in a planner at a desk behind the title of this blog.]({{ https://www.simplehomemom.github.io.com }}/images/how-to-unscramble-your-brain-with-a-braindump-SHM.jpg) 
+![Woman writing in a planner at a desk behind the title of this blog.]({{ https://www.simplehomemom.github.io.com }}/images/How to Unscramble Your Brain with a Braindump SHM.jpg) 
 
 **Other blogs on braindumping:**
 
