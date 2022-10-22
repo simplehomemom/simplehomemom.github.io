@@ -7,7 +7,7 @@ tags:
 - Chores
 
 ---
-_I certainly didn’t have chores “figured out” until probably the last couple years. I was spinning wheels and getting mad at chores more often than I’d like in the past because I didn’t know how to, well, tackle them. Learning how to create chore routines was not something I learned growing up. Chores just was something I did. Sort of. And also stressed me out more often than not. Can you relate too?_ If so, this blog is for you. I bring you: **the ultimate chore checklists that don’t stress you out.**
+I certainly didn’t have chores “figured out” until probably the last couple years. I was spinning wheels and getting mad at chores more often than I’d like in the past because I didn’t know how to, well, tackle them. Learning how to create chore routines was not something I learned growing up. Chores just was something I did. Sort of. And also stressed me out more often than not. Can you relate too? If so, this blog is for you. I bring you: **the ultimate chore checklists that don’t stress you out.**
 
 _I am going to be sharing with you my valuable chore routines that I share on my_ [_Instagram_](http://www.instagram.com/simplehomemom) _almost daily and give you a deep dive into loop planning with chore routines. A much requested topic!_
 
