@@ -46,6 +46,8 @@ Ok, now we all understand what a braindump specifically is now. Right? Does brai
 
 Braindumping to unscramble your brain is a relatively simple concept and when put into practice, it can be so helpful. Make sure to have supplies on hand, braindump as needed, and enjoy!
 
+# Unscramble your brain by writing your braindump down
+
 And part of the problem many of us have is that we have sooo much floating around our brains and just leave it sitting there. The solution? Write it down. Write it allll down. My Simple Planners all have spaces for daily braindumping to get those things floating around brain. Find them all in my shop [HERE](https://www.etsy.com/shop/simplehomemomshop)! My best seller is my foldable Simple Weekly Planner.
 
 ![A picture of a printable planner on a desk.]({{ https://www.simplehomemom.github.io.com }}/images/My Simple Weekly Planner SHM.jpg) 
