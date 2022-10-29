@@ -40,7 +40,7 @@ _I promise you that loop planning becomes easier with practice too!_
 
 **Save for future reference:**
 
-![Blog title graphic]({{ https://www.simplehomemom.github.io.com }}/images/the ultimate chore checklists that don't stress you out SHM.jpg) 
+![Blog title graphic]({{ https://www.simplehomemom.github.io.com }}/images/the ultimate daily chore checklists that don't stress you out SHM.jpg) 
 
 ##### MORE LOOP PLANNING:
 
