@@ -27,7 +27,7 @@ Loop planning is a fantastic strategy to use with home planning if you want to b
 
 Well, a loop plan is essentially a list of things or tasks that you loop through, with no regard to time. That way you never feel behind or ahead, you know?
 
-**HOW I ORGANIZE MY DAILY CHORE LOOP PLAN FOR THOSE EXTRA CHORES:**
+#### HOW I ORGANIZE MY DAILY CHORE LOOP PLAN FOR THOSE EXTRA CHORES:
 
 * I have a list of areas that I want to work on (see the loop chore checklist above).
 * I created a master task list to refer to whenever I’m in each area (such as laundry room - wipe windows, vacuum behind washer and so on).
@@ -40,7 +40,7 @@ _I promise you that loop planning becomes easier with practice too!_
 
 **Save for future reference:**
 
-![Blog graphic](the-ultimate-daily-chore-checklists-that-don-t-stress-you-out-shm.jpg "The Ultimate Daily Chore Checklists that Don't Stress You Out SHM")
+![Blog title graphic]({{ https://www.simplehomemom.github.io.com }}/images/the ultimate chore checklists that don't stress you out SHM.jpg) 
 
 ##### MORE LOOP PLANNING:
 
