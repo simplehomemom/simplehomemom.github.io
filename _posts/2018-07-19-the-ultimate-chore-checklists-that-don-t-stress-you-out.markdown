@@ -49,7 +49,5 @@ _I promise you that loop planning becomes easier with practice too!_
 
 ##### OTHER HELPFUL BLOGS ON CHORES:
 
-* [Throw Out the Cleaning Routine and Try This Instead](https://www.simplehomemom.com/throw-out-the-cleaning-routine-and-try-this-instead/)
-* [How to Design a Simple Cleaning Routine](https://www.simplehomemom.com/how-to-design-a-simple-cleaning-routine/)
 * [The complete household chores list](https://bungalow.com/articles/the-complete-household-chores-list)
 * [22 Chore Ideas for Every Type of Kid](https://www.parents.com/toddlers-preschoolers/development/behavioral/chores-for-kids/)
