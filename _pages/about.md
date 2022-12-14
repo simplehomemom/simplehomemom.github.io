@@ -2,7 +2,7 @@
 layout: page
 title: About
 permalink: /about/
-image: 
+image: SHM website graphic front.png
 ---
 
 Hi, my name is Kelly Briggs and I’m a simple home management coach. I homeschool our four children (ages 11-3) on the east coast of Canada as well as work part-time in social media. I left my teaching job over nine years ago to stay home and it was after that that I realized I needed to get better - much better - at managing the home.
