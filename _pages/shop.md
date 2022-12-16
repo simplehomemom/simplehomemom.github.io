@@ -1,4 +1,4 @@
 ---
 title: Shop
-link: /https://www.etsy.com/shop/simplehomemomshop/
+absolute_url: https://www.etsy.com/shop/simplehomemomshop/
 ---
