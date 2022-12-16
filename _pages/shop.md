@@ -1,4 +1,5 @@
 ---
+layout: page
 title: Shop
-link: https://www.etsy.com/shop/simplehomemomshop
+url: https://www.etsy.com/shop/simplehomemomshop
 ---
