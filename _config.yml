@@ -20,6 +20,12 @@ defaults:
       path: '_pages'
     values:
       permalink: /:title/
+      
+  - scope:
+      path: '_pages'
+    values:
+      permalink: /:title/
+      description: Add in a meta description for SEO.
 
 include:
   - _pages
