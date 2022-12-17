@@ -29,9 +29,7 @@ description: This is a meta description to help with SEO.
       </div>
     </div>
   </div>
-
-  <meta name="description" content="{% if page.description %}{{ page.description }}{% else %}{{ site.description }}{% endif %}">
-
+  
   {% assign no-image = nil %}
   {% if page.image %}
     <div class="post__head">
