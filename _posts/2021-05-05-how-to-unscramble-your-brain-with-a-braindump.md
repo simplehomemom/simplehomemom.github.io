@@ -1,9 +1,9 @@
 ---
 layout: post
-title: How to Unscramble Your Brain with a Braindump
-date: 2021-05-05 03:00:00 +0000
-image: braindump.jpg
-tags: Planning
+title:  How to Unscramble Your Brain with a Braindump
+date:   2021-05-05 03:00:00 +0000
+image:  braindump.jpg
+tags:   Planning
 ---
 Scrambled eggs brain. Does that sound familiar sometimes? I know it does for me. We may feel scrambled when we have a lot on our brains – when we’re thinking about all of the tasks and ideas that keep floating around, especially as overwhelmed stay at home moms. And then the next thing we know, we forget what they were. We then need to unscramble those things we forget about. Sound familiar? Today on the blog, I’m sharing about <b> how to unscramble your brain with a braindump. <b> 
 
