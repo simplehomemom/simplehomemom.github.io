@@ -1,4 +1,6 @@
 ---
-title: Shop
-absolute_url: https://www.etsy.com/shop/simplehomemomshop/
+layout: page
+title: About
+permalink: /about/
+image: 
 ---
