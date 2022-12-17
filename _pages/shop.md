@@ -1,6 +1,6 @@
 ---
 layout: page
 title: Shop
-permalink: /shop/
+permalink: www.etsy.com/shop/simplehomemomshop
 image: 
 ---
