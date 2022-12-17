@@ -30,6 +30,8 @@ description: This is a meta description to help with SEO.
     </div>
   </div>
 
+  <meta name="description" content="{% if page.description %}{{ page.description }}{% else %}{{ site.description }}{% endif %}">
+
   {% assign no-image = nil %}
   {% if page.image %}
     <div class="post__head">
@@ -123,5 +125,3 @@ description: This is a meta description to help with SEO.
 
   {% if site.data.settings.disqus-identifier %} {% include disqus-comments.html %} {% endif %}
   </div>
-
-  <meta name="description" content="{% if page.description %}{{ page.description }}{% else %}{{ site.description }}{% endif %}">
