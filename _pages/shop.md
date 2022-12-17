@@ -2,5 +2,6 @@
 layout: page
 title: Shop
 permalink: /shop/ 
-image: 
+redirect:   https://www.etsy.com/shop/simplehomemomshop
+layout:     redirect
 ---
