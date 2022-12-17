@@ -28,6 +28,9 @@ description: This is a meta description to help with SEO.
 				{{ content }}
 			</div>
 		</article>
+
+		<meta name="description" content="{% if page.description %}{{ page.description }}{% else %}{{ site.description }}{% endif %}">
+		
 		<!-- end page -->
 	</div>
 </div>
