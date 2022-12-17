@@ -24,6 +24,11 @@
   {% include footer.html %}
 
   {% include javascripts.html %}
+
+  {% if page.description %}
+<meta name="description" content="{{ page.description | join: ', ' | escape }}">
+{% endif %}
+
 </body>
 
 </html>
