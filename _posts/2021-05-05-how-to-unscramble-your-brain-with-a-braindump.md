@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  How to Unscramble Your Brain with a Braindump
+title:  "How to Unscramble Your Brain with a Braindump"
 date:   2021-05-05 03:00:00 +0000
 image:  braindump.jpg
 tags:   Planning
