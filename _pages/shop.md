@@ -1,6 +1,6 @@
 ---
 layout: page
-title: About
-permalink: /about/
+title: Shop
+permalink: /shop/
 image: 
 ---
