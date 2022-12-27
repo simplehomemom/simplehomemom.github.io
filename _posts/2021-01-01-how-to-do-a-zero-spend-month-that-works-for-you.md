@@ -7,8 +7,6 @@ tags: Planning
 ---
 Like with anything, there are many perspectives for finances. What’s been working really well for us the past couple years is when we stick to a zero spend budget. Today on the blog, I’m sharing about how to do a zero spend month that works for you.
 
-### What does a zero spend month look like?
-
 We keep a zero spend month simple - I see it more of a mindset than a list of rules. Essentially, we don’t spend unless necessary, simplify, and streamline it all. We’ve ended up saving a lot of money faster this way too. Which is the goal, right? Little purchases used to add up so quickly for us, so this shift has been huge for us.
 
 ## What does a zero spend month look like practically speaking? 
