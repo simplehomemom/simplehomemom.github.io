@@ -11,12 +11,11 @@ We keep a zero spend month simple - I see it more of a mindset than a list of ru
 
 ## What does a zero spend month look like practically speaking? 
 
-Instead of setting aside certain amounts for spending areas such as with a [traditional budget](https://www.wallstreetmojo.com/traditional-budgeting-vs-zero-based-budgeting/).
-
- (which in the past I’d want to spend if we didn’t dip into it), we just track every purchase and take a look at it throughout the month and at the end of the month going forward. We’d then talk about it. Did we really need xyz? And to make new “rules” going forward. Essentially - [mindful budgeting and spending](https://www.moneyunder30.com/mindfulness-can-help-you-save-money#:\~:text=Being%20mindful%20with%20your%20money,if%20it%20matches%20your%20priorities/).
+Instead of setting aside certain amounts for spending areas such as with a [traditional budget](https://www.wallstreetmojo.com/traditional-budgeting-vs-zero-based-budgeting/) (which in the past I’d want to spend if we didn’t dip into it), we just track every purchase and take a look at it throughout the month and at the end of the month going forward. We’d then talk about it. Did we really need xyz? And to make new “rules” going forward. Essentially - [mindful budgeting and spending](https://www.moneyunder30.com/mindfulness-can-help-you-save-money#:\~:text=Being%20mindful%20with%20your%20money,if%20it%20matches%20your%20priorities/).
 
 # 5 TIPS FOR DOING A ZERO SPEND MONTH
-(that have been helpful for us)
+
+These are 5 tips that have been so helpful for us during zero spend months!
 
 1. Hold off on anything that is not immediate. Giving time to think about if you really need something.
 2. Buy second hand where possible.
