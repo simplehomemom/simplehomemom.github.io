@@ -33,7 +33,7 @@ Make your own rules, guidelines, and be mindful of your spending. Learn from you
 
 And if this sounds interesting to you and you’d like to try it. I linked a “Plan Your Zero Spend Month” worksheets for you if you’d like to try a zero spend month that you can download [here](https://mailchi.mp/8264c25ebc2a/zerospend).
 
-# What’s included in the zero spend month worksheets?
+# What’s included in the FREE zero spend month worksheets?
 
 * Some background information on what a zero spend month is.
 * Examples.
