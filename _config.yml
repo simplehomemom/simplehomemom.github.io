@@ -1,5 +1,5 @@
-baseurl: https://vocal-meringue-56335e.netlify.app/ # the subpath of your site, e.g. /blog
-url: "https://vocal-meringue-56335e.netlify.app/" # the base hostname & protocol for your site, e.g. http://example.com
+baseurl: https://simplehomemom.netlify.app/ # the subpath of your site, e.g. /blog
+url: "https://simplehomemom.netlify.app/" # the base hostname & protocol for your site, e.g. http://example.com
 
 
 # Build settings
