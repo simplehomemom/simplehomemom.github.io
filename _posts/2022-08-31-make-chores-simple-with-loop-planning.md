@@ -14,7 +14,7 @@ A loop plan is essentially a list of things or tasks that you loop through, with
 
 ### Why loop planning?
 
-Loop planning is a fantastic strategy to use with home planning if you want to be consistent, but also don’t want to burn out. There are endless uses for loop planning with managing your home. I originally heard about [oop planning](https://pambarnhill.com/loop-scheduling/#:\~:text=Loop%20scheduling%20doesn't%20assign,the%20list%20and%20start%20there.) in the homeschooling world. My personal favourite is using a loop planning strategy for those “extra chores”. I share about my loop chore routine in my [Instagram stories](https://www.instagram.com/simplehomemom) often. You can grab my free chore routine printables below as well and try them out for yourself!
+Loop planning is a fantastic strategy to use with home planning if you want to be consistent, but also don’t want to burn out. There are endless uses for loop planning with managing your home. I originally heard about [loop planning](https://pambarnhill.com/loop-scheduling/#:\~:text=Loop%20scheduling%20doesn't%20assign,the%20list%20and%20start%20there.) in the homeschooling world. My personal favourite is using a loop planning strategy for those “extra chores”. I share about my loop chore routine in my [Instagram stories](https://www.instagram.com/simplehomemom) often. You can grab my free chore routine printables below as well and try them out for yourself!
 
 ### Ways to use loop planning
 
