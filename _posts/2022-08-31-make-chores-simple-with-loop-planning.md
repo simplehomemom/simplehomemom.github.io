@@ -58,7 +58,7 @@ These checklists go hand in hand to help you make your chores simple and the mag
 
 ### MORE LOOP PLANNING:
 
-*Videos on loop planning I’ve done [HERE](https://www.instagram.com/p/CTzLnadj5OS/) and [HERE](https://www.instagram.com/p/CeElgpKJrsk/).
-Blog: [The Ultimate Chore Checklists that Don't Stress You Out](https://www.simplehomemom.com/the-ultimate-chore-checklists-that-don-t-stress-you-out/)
-Shop: [Fillable daily chore checklist and loop chore checklist](https://www.etsy.com/ca/listing/1262897334/fillable-daily-chore-checklists?click_key=0b15131e5812821903aaf91b393d29b948301c86%3A1262897334&click_sum=388b8820&ref=shop_home_active_3)
+* Videos on loop planning I’ve done [HERE](https://www.instagram.com/p/CTzLnadj5OS/)and [HERE](https://www.instagram.com/p/CeElgpKJrsk/).
+* Blog: [The Ultimate Chore Checklists that Don't Stress You Out](https://www.simplehomemom.com/the-ultimate-chore-checklists-that-don-t-stress-you-out/)
+* Shop: [Fillable daily chore checklist and loop chore checklist](https://www.etsy.com/ca/listing/1262897334/fillable-daily-chore-checklists?click_key=0b15131e5812821903aaf91b393d29b948301c86%3A1262897334&click_sum=388b8820&ref=shop_home_active_3)
 
