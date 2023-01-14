@@ -6,7 +6,7 @@ image:  chore-checklist.jpg
 tags:   Chores Planning
 ---
 
-Have you ever felt stressed out by trying to keep up with all things in your home? There are so many things to do, no matter what size your home or family is, so [loop planning](https://pambarnhill.com/loop-scheduling/#:\~:text=Loop%20scheduling%20doesn't%20assign,the%20list%20and%20start%20there.) is one strategy that can help you keep track of it all in a way that can be very low stress, too. Today on the blog, I’m sharing with you how to make chores simple with loop planning.
+Have you ever felt stressed out by trying to keep up with all things in your home? There are so many things to do, no matter what size your home or family is, so [loop planning](https://pambarnhill.com/loop-scheduling/#:\~:text=Loop%20scheduling%20doesn't%20assign,the%20list%20and%20start%20there.) is one strategy that can help you keep track of it all in a way that can be very low stress, too. Today on the blog, I’m sharing with you <b> how to make chores simple with loop planning. <b>
 
 ### So what’s loop planning?
 
@@ -23,7 +23,7 @@ Loop planning is a fantastic strategy to use with home planning if you want to b
 3. Loop plan your work time tasks. I often do this when I have a few projects on the go! I set a timer and work through one at a time or a bit of each some days.
 4. Loop plan your meals, such as by using a list of 30 meals. You start at the beginning and loop back around again when you get to the end.
 
-Related: [The Ultimate Daily Chore Checklists that Don’t Stress You Out](https://www.simplehomemom.com/the-ultimate-chore-checklists-that-don-t-stress-you-out/)
+<b> Related: <b> [The Ultimate Daily Chore Checklists that Don’t Stress You Out](https://www.simplehomemom.com/the-ultimate-chore-checklists-that-don-t-stress-you-out/)
 
 
 Here is one example of a loop plan that is focused on cleaning zones:
@@ -58,7 +58,7 @@ These checklists go hand in hand to help you make your chores simple and the mag
 
 ### MORE LOOP PLANNING:
 
-* Videos on loop planning I’ve done [HERE](https://www.instagram.com/p/CTzLnadj5OS/)and [HERE](https://www.instagram.com/p/CeElgpKJrsk/).
-* Blog: [The Ultimate Chore Checklists that Don't Stress You Out](https://www.simplehomemom.com/the-ultimate-chore-checklists-that-don-t-stress-you-out/)
-* Shop: [Fillable daily chore checklist and loop chore checklist](https://www.etsy.com/ca/listing/1262897334/fillable-daily-chore-checklists?click_key=0b15131e5812821903aaf91b393d29b948301c86%3A1262897334&click_sum=388b8820&ref=shop_home_active_3)
+* <b> Videos <b> on loop planning I’ve done [HERE](https://www.instagram.com/p/CTzLnadj5OS/)and [HERE](https://www.instagram.com/p/CeElgpKJrsk/).
+* <b> Blog: <b> [The Ultimate Chore Checklists that Don't Stress You Out](https://www.simplehomemom.com/the-ultimate-chore-checklists-that-don-t-stress-you-out/)
+* <b> Shop: <b> [Fillable daily chore checklist and loop chore checklist](https://www.etsy.com/ca/listing/1262897334/fillable-daily-chore-checklists?click_key=0b15131e5812821903aaf91b393d29b948301c86%3A1262897334&click_sum=388b8820&ref=shop_home_active_3)
 
