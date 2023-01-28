@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  How to Create the Perfect Daily Routine
-date:   2021-23-07 03:00:00 +0000
+date:   2021-07-23 03:00:00 +0000
 image:  planning at table SHM.jpg
 tags:   Planning Routines
 ---
