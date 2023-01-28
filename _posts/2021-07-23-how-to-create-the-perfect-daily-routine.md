@@ -2,7 +2,7 @@
 layout: post
 title:  How to Create the Perfect Daily Routine
 date:   2021-07-23 03:00:00 +0000
-image:  planning at the table SHM.jpg
+image:  planning SHM.jpg
 tags:   Planning Routines
 ---
 
@@ -22,7 +22,7 @@ _…“a good planned daily routine can be very life-giving and something to com
 
 -above benefits of having routines are from [the Real Simple blog](https://www.realsimple.com/work-life/life-strategies/benefits-of-routines)
 
-![A woman sitting at a table with her planner.]({{ https://www.simplehomemom.github.io.com }}/images/planning at the table SHM.jpg) 
+![A woman sitting at a table with her planner.]({{ https://www.simplehomemom.github.io.com }}/images/planning SHM.jpg) 
 
 
 # My journey with a daily routine as a mom
