@@ -6,7 +6,7 @@ image:  planningSHM.jpg
 tags:   Planning Routines
 ---
 
-Creating a perfect daily routine. Is there really such a thing as a perfect daily routine? There is no perfection in life, but a good planned daily routine can be very life-giving and something to come back to over and over. I’ve found this to be true over and over again during my years of being a mom and having a daily routine. Today on the blog, I’m sharing about <b> how to create a perfect daily routine. <b>  
+Creating a perfect daily routine. Is there really such a thing as a perfect daily routine? There is no perfection in life, but a good planned daily routine can be very life-giving and something to come back to over and over. I’ve found this to be true over and over again during my years of being a mom and having a daily routine. Today on the blog, I’m sharing about <b> how to create a perfect daily routine. </b>  
 I hope it helps you out today and gives you some ideas to create or tweak your own routines. 
 
 _…“a good planned daily routine can be very life-giving and something to come back to over and over.”_ 
@@ -31,11 +31,11 @@ I didn’t really have any consistent routine in place probably until I had a th
 
 ## Three steps to create the perfect daily routine:
 
-1. <b> Take note about what you do daily for a few days. <b> 
+1. <b> Take note about what you do daily for a few days. </b> 
 What do you want to keep? What do you want to do less of? What would you like to add? What did you notice?
-2. <b> Jot down some of your values and goals for your daily routine. <b> 
+2. <b> Jot down some of your values and goals for your daily routine. </b> 
 Such as: reading more consistently, taking quiet time, or making time for friends.
-3. <b> Work towards your perfect daily routine day by day. <b> 
+3. <b> Work towards your perfect daily routine day by day. </b> 
 And give yourself lots of time and grace as you are changing old habits and instilling new ones.
 
 And always come back to your values. Ask why you are doing your daily routine in the first place whenever you feel the motivation waning. Reassess, change things up as needed and keep going! 
