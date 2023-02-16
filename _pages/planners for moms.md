@@ -5,7 +5,7 @@ permalink: /planners-for-moms/
 image: 
 ---
 
-Hey, are you a mom and are looking for <b> planners for moms? <b> Specifically made for moms? If so, you've come to the right place.
+Hey, are you a mom and are looking for <b>planners for moms?<b> Specifically made for moms? If so, you've come to the right place.
 
 ![My Simple Planners Graphic headers]({{ https://www.simplehomemom.github.io.com }}/images/My Simple Planners SHM.jpg) 
 
