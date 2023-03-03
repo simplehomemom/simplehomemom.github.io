@@ -21,5 +21,8 @@ Looking for a simple, no fuss planner that helps you stay on track without feeli
 
 Find all of my planners for moms in my shop [HERE](https://www.etsy.com/shop/simplehomemomshop)
 
-Planning blogs:
-Helpful planning tips:
+Helpful planning blogs:
+
+[How to Create the Perfect Daily Routine](https://www.simplehomemom.com/how-to-create-the-perfect-daily-routine/)
+[How to Unscramble Your Brain with a Braindump](https://www.simplehomemom.com/how-to-unscramble-your-brain-with-a-braindump/)
+
