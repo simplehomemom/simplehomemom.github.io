@@ -34,5 +34,6 @@ BEST SELLER PLANNERS FOR MOMS:
 Helpful planning blogs:
 
 [How to Create the Perfect Daily Routine](https://www.simplehomemom.com/how-to-create-the-perfect-daily-routine/)
+
 [How to Unscramble Your Brain with a Braindump](https://www.simplehomemom.com/how-to-unscramble-your-brain-with-a-braindump/)
 
