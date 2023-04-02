@@ -19,10 +19,8 @@ My Simple Planners were designed with simplicity in mind. My planners for moms c
 ⪼ you want to get better at planning, but don't know where to start.
 ⪼ you get overwhelmed at all of the planning choices out there.
 
-Find all of my planners for moms in my shop [HERE](https://www.etsy.com/shop/simplehomemomshop).
-
-
-<h3>BEST SELLER PLANNERS FOR MOMS:</h3>
+<p>Find all of my planners for moms in my shop <a href="https://www.etsy.com/shop/simplehomemomshop">HERE</a>.</p>
+<h3 style="margin-top: 20px;">BEST SELLER PLANNERS FOR MOMS:</h3>
 
 [My Simple Weekly Planner](https://www.etsy.com/listing/1258129220/my-simple-weekly-planner-downloadable): Downloadable & Printable Foldable Planner
 
