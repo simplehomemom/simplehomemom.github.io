@@ -21,6 +21,16 @@ Looking for a simple, no fuss planner that helps you stay on track without feeli
 
 Find all of my planners for moms in my shop [HERE](https://www.etsy.com/shop/simplehomemomshop)
 
+BEST SELLER PLANNERS FOR MOMS:
+
+[My Simple Weekly Planner](https://www.etsy.com/listing/1258129220/my-simple-weekly-planner-downloadable): Downloadable & Printable Foldable Planner
+
+[My Simple Planner](https://www.etsy.com/listing/1240323193/my-simple-planner-weekly-daily-monthly): Downloadable & Printable Foldable Planner ⪼ Weekly - Daily - Monthly. Downloadable & Printable Planner Letter Size
+
+[My Simple Weekly Plan](https://www.etsy.com/listing/1368777999/my-simple-weekly-plan-downloadable): ⪼ Downloadable & Printable ⪼ Letter Size
+
+
+
 Helpful planning blogs:
 
 [How to Create the Perfect Daily Routine](https://www.simplehomemom.com/how-to-create-the-perfect-daily-routine/)
