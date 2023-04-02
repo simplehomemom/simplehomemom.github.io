@@ -21,7 +21,7 @@ My Simple Planners were designed with simplicity in mind. My planners for moms c
 
 Find all of my planners for moms in my shop [HERE].(https://www.etsy.com/shop/simplehomemomshop)
 
-<b>BEST SELLER PLANNERS FOR MOMS:<b>
+<h2>BEST SELLER PLANNERS FOR MOMS:</h2>
 
 [My Simple Weekly Planner](https://www.etsy.com/listing/1258129220/my-simple-weekly-planner-downloadable): Downloadable & Printable Foldable Planner
 
