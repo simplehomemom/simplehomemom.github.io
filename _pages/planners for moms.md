@@ -25,10 +25,15 @@ BEST SELLER PLANNERS FOR MOMS:
 
 [My Simple Weekly Planner](https://www.etsy.com/listing/1258129220/my-simple-weekly-planner-downloadable): Downloadable & Printable Foldable Planner
 
+![My Simple Weekly Planner graphic]({{ https://www.simplehomemom.github.io.com }}/images/My Simple Weekly Foldable Planner SHM.jpg) 
+
 [My Simple Planner](https://www.etsy.com/listing/1240323193/my-simple-planner-weekly-daily-monthly): Downloadable & Printable Foldable Planner ⪼ Weekly - Daily - Monthly. Downloadable & Printable Planner Letter Size
+
+![My Simple Planner graphic]({{ https://www.simplehomemom.github.io.com }}/images/My Simple Planner SHM.jpg) 
 
 [My Simple Weekly Plan](https://www.etsy.com/listing/1368777999/my-simple-weekly-plan-downloadable): ⪼ Downloadable & Printable ⪼ Letter Size
 
+![My Simple Weekly Plan graphic]({{ https://www.simplehomemom.github.io.com }}/images/My Simple Weekly Plan SHM.jpg) 
 
 
 Helpful planning blogs:
