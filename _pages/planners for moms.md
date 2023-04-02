@@ -38,10 +38,7 @@ Find all of my planners for moms in my shop [HERE](https://www.etsy.com/shop/sim
 
 <b>Helpful planning blogs:<b>
 
-[How to Create the Perfect Daily Routine](https://www.simplehomemom.com/how-to-create-the-perfect-daily-routine/)
-
-[How to Unscramble Your Brain with a Braindump](https://www.simplehomemom.com/how-to-unscramble-your-brain-with-a-braindump/)
-
-[How To Plan Your Day As a Mom (3 Simple Steps)](https://simpleonpurpose.ca/plan-your-day/)
-
-[A Mom’s Guide: How To Plan Your Week For Success](https://misssueliving.com/a-moms-guide-how-to-plan-your-week-for-success/)
+* [How to Create the Perfect Daily Routine](https://www.simplehomemom.com/how-to-create-the-perfect-daily-routine/)
+* [How to Unscramble Your Brain with a Braindump](https://www.simplehomemom.com/how-to-unscramble-your-brain-with-a-braindump/)
+* [How To Plan Your Day As a Mom (3 Simple Steps)](https://simpleonpurpose.ca/plan-your-day/)
+* [A Mom’s Guide: How To Plan Your Week For Success](https://misssueliving.com/a-moms-guide-how-to-plan-your-week-for-success/)
