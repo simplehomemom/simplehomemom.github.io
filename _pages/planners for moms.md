@@ -19,7 +19,7 @@ My Simple Planners were designed with simplicity in mind. My planners for moms c
 ⪼ you want to get better at planning, but don't know where to start.
 ⪼ you get overwhelmed at all of the planning choices out there.
 
-Find all of my planners for moms in my shop [HERE](https://www.etsy.com/shop/simplehomemomshop)
+Find all of my planners for moms in my shop [HERE].(https://www.etsy.com/shop/simplehomemomshop)
 
 <b>BEST SELLER PLANNERS FOR MOMS:<b>
 
