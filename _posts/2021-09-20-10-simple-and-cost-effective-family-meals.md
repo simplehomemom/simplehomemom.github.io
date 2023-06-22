@@ -11,7 +11,6 @@ I love getting meal inspiration from other families, so thought I'd write down a
 
 Simple and cost effective family meals are a must these days because life is busy and most of the time kids do better with simple rather than elaborate meals..and plus it means less prep time for us. The other benefit is the obvious - saving money, which is what most of us strive to do. It's the ideal situation, right? I'm a fan of [quick, simple, healthy meals](https://www.eatingwell.com/gallery/13723/20-healthy-meals-you-can-make-in-20-minutes/)  that get repeated often. I'll be sharing our most popular meals in my blog for you today. They are in no particular order. I'd also love to hear what your favourites are; feel free to leave a comment!
 
-<ol>
 <li><b>NACHOS</b></li>
 
 This is one of our "fun" meals that we have periodically, but it's always a hit and can have so many variations to it.
@@ -151,7 +150,6 @@ We use a breakfast buffet most days for breakfast. It consists of dry oatmeal wi
 * Peanut butter
 
 10. <b>SIMPLE CORN CHOWDER<b>
-<ol>
 
 This is a very recent addition, but it's a hit! And so affordable and quick, to boot.
 
