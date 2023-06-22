@@ -165,7 +165,7 @@ Ingredients:
 * Serve with biscuits if you'd like!
 
 
-## SAVE FOR FUTURE REFERENCE:
+<b>SAVE FOR FUTURE REFERENCE:<b>
 ![A picture of the blog title.]({{ https://www.simplehomemom.github.io.com }}/images/10 Simple and Cost Effective Meals for Families SHM.png)  
 
 ## Other help blogs I found with simple and cost effective family meals:
@@ -175,7 +175,8 @@ Ingredients:
 * [105 healthy dinners you can cook in 30 minutes](https://www.delicious.com.au/recipes/collections/gallery/60-healthy-dinners-you-can-cook-in-30-minutes/1vo4q819)
 
 
-### SIMPLE MEAL PLANNING GUIDE
+<br>
+### SIMPLE MEAL PLANNING GUIDE:
 ![A picture of a review of the Simple Meal Guide]({{ https://www.simplehomemom.github.io.com }}/images/Simple Meal Guide Review SHM.jpg) 
 
 And if you’re constantly finding meal planning a challenge, you may also love my Simple Meal Planning Guide!
