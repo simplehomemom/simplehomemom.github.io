@@ -24,7 +24,7 @@ Ingredients:
 
 Serve the nachos on their own after broiling in the oven or with sour cream and/or salsa. If we're feeling like splurging a little, we buy Doritos and use those for the nachos. It's sooooo tasty!
 
-And because I love DIY: [DIY Nacho spice](https://www.allrecipes.com/recipe/46653/taco-seasoning-i/); [Easy Homemade Baked Pita Chips](https://www.joyfulhealthyeats.com/homemade-baked-pita-chips/); [Taco meat recipe]{https://amindfullmom.com/3-ingredient-taco-meat-and-4-ways-to-use-it/)}
+And because I love DIY: [DIY Nacho spice](https://www.allrecipes.com/recipe/46653/taco-seasoning-i/); [Easy Homemade Baked Pita Chips](https://www.joyfulhealthyeats.com/homemade-baked-pita-chips/); [Taco meat recipe](https://amindfullmom.com/3-ingredient-taco-meat-and-4-ways-to-use-it/)}
 
 ![A picture of nachos on the table.]({{ https://www.simplehomemom.github.io.com }}/images/NachosSHM.jpg) 
 
