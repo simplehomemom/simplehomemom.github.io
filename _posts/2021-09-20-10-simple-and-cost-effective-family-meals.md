@@ -29,7 +29,7 @@ And because I love DIY: [DIY Nacho spice](https://www.allrecipes.com/recipe/4665
 
 ![A picture of nachos on the table.]({{ https://www.simplehomemom.github.io.com }}/images/NachosSHM.jpg) 
 
-<li>PICKY PLATES</li>
+<li><b>PICKY PLATES<b></li>
 
 Picky plates or finger foods are what we do for most of our lunches. I put them in a round container with separated sections. I use my picky plate planner page from my [Simple Meal Planning Guide](https://www.etsy.com/listing/1297532274/the-ultimate-simple-meal-planning-step) to plan it out. I make sure to have a variety of foods from different food groups such as:
 
