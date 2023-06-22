@@ -11,7 +11,7 @@ I love getting meal inspiration from other families, so thought I'd write down a
 
 Simple and cost effective family meals are a must these days because life is busy and most of the time kids do better with simple rather than elaborate meals..and plus it means less prep time for us. The other benefit is the obvious - saving money, which is what most of us strive to do. It's the ideal situation, right? I'm a fan of [quick, simple, healthy meals](https://www.eatingwell.com/gallery/13723/20-healthy-meals-you-can-make-in-20-minutes/)  that get repeated often. I'll be sharing our most popular meals in my blog for you today. They are in no particular order. I'd also love to hear what your favourites are; feel free to leave a comment!
 
-<li><b>NACHOS</b></li>
+<b>NACHOS</b>
 
 This is one of our "fun" meals that we have periodically, but it's always a hit and can have so many variations to it.
 
@@ -28,7 +28,7 @@ And because I love DIY: [DIY Nacho spice](https://www.allrecipes.com/recipe/4665
 
 ![A picture of nachos on the table.]({{ https://www.simplehomemom.github.io.com }}/images/NachosSHM.jpg) 
 
-<li><b>PICKY PLATES<b></li>
+<b>PICKY PLATES<b>
 
 Picky plates or finger foods are what we do for most of our lunches. I put them in a round container with separated sections. I use my picky plate planner page from my [Simple Meal Planning Guide](https://www.etsy.com/listing/1297532274/the-ultimate-simple-meal-planning-step) to plan it out. I make sure to have a variety of foods from different food groups such as:
 
@@ -41,7 +41,7 @@ You can find out more about picky plates in my [Simple Meal Planning Guide](http
 
 Finger food ideas: [20 Best Finger Food Ideas to Feed a Crowd](https://www.thepioneerwoman.com/food-cooking/meals-menus/g38403459/finger-food-ideas/); [19 Healthy and Easy Finger Foods For Kids](https://www.momjunction.com/articles/delicious-finger-foods-for-your-kids-party_0075814/); [Masterlist of Finger Foods for Toddlers, Babies, and Big Kids](https://www.yummytoddlerfood.com/finger-foods/)
 
-3. <b>TUNA WRAPS<b>
+<b>TUNA WRAPS<b>
 
 I do variations of these often, so will share the most current version I've been making.
 
@@ -56,7 +56,7 @@ Ingredients:
 * Chopped spinach
 * I'll sometimes serve with a side of mixed veggies too.
 
-4. <b>TACO BOWLS<b> (lentil with meat)
+<b>TACO BOWLS<b> (lentil with meat)
 
 This one is always popular in our home. I keep a running list of ingredients on my phone for quick recall; low brain power usage is all that’s needed. ha!
 
@@ -75,7 +75,7 @@ Ingredients:
 
 ![A picture of taco bowl ingredients on the counter.]({{ https://www.simplehomemom.github.io.com }}/images/Taco Bowls SHM.jpg) 
 
-5. <b>CHICKEN SHAWARMA BOWLS<b>
+<b>CHICKEN SHAWARMA BOWLS<b>
 
 This is a favourite in our home!
 
@@ -101,7 +101,7 @@ If you’re stumped with meal planning and grocery planning, using one of my Sim
 
 ![A picture of one of my printable daily planners.]({{ https://www.simplehomemom.github.io.com }}/images/My Simple Daily Plan SHM.png) 
 
-6. <b>SIMPLE VEGETABLE SOUP<b>
+<b>SIMPLE VEGETABLE SOUP<b>
 
 This one is SO tasty and is usually a hit with our crew. We try to have at least one meatless supper a week, usually on Monday for a meatless Monday theme. Meal planning with theme nights is a hit here! It simplifies meal planning so much for us.
 
@@ -114,7 +114,7 @@ Ingredients:
 * Add chicken or turkey for a non vegetarian option
 * Serve with biscuits!
 
-7. <b>EGG WRAPS<b>
+<b>EGG WRAPS<b>
 
 These are always a hit here and so simple to put together.
 
@@ -128,7 +128,7 @@ Ingredients:
 * Whole wheat wraps
 * Veggies on the side (fresh or steamed)
 
-8. <b>SIMPLE FISH MEAL<b>
+<b>SIMPLE FISH MEAL<b>
 
 Our favorite, simplest recipe is taking salmon or haddock with olive oil, salt, and pepper and frying it on our griddle.
 
@@ -137,7 +137,7 @@ I make instant pot quinoa/rice. Find a good recipe [here](https://minimalistbake
 Veggies are usually roast veggies or steamed veggies. Whatever we feel like or have to use up. Olive oil, salt, and pepper is our go to mix.
 
 
-9. <b>BREAKFAST BUFFET<b>
+<b>BREAKFAST BUFFET<b>
 
 We use a breakfast buffet most days for breakfast. It consists of dry oatmeal with added milk or pot oatmeal. The kids choose their own combinations from the ingredients below to make their own breakfast bowls:
 
@@ -149,7 +149,7 @@ We use a breakfast buffet most days for breakfast. It consists of dry oatmeal wi
 * Yogurt
 * Peanut butter
 
-10. <b>SIMPLE CORN CHOWDER<b>
+<b>SIMPLE CORN CHOWDER<b>
 
 This is a very recent addition, but it's a hit! And so affordable and quick, to boot.
 
