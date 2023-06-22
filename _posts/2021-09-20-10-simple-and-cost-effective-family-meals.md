@@ -3,7 +3,7 @@ layout: post
 title:  10 Simple and Cost Effective Family Meals
 date:   2021-05-05 03:00:00 +0000
 image:  NachosSHM.jpg
-tags:   Meal&nbsp;planning Planning
+tags:   Meal&nbsp;Planning Planning
 ---
 I love getting meal inspiration from other families, so thought I'd write down all of our simple and cost effective family meals here for you. Hopefully you find something new to try. Tag me on [instagram @simplehomemom](https://www.instagram.com/simplehomemom) if you do! Today on the blog, I bring you: 10 simple and cost effective family meals.
 
@@ -11,7 +11,7 @@ I love getting meal inspiration from other families, so thought I'd write down a
 
 Simple and cost effective family meals are a must these days because life is busy and most of the time kids do better with simple rather than elaborate meals..and plus it means less prep time for us. The other benefit is the obvious - saving money, which is what most of us strive to do. It's the ideal situation, right? I'm a fan of [quick, simple, healthy meals](https://www.eatingwell.com/gallery/13723/20-healthy-meals-you-can-make-in-20-minutes/)  that get repeated often. I'll be sharing our most popular meals in my blog for you today. They are in no particular order. I'd also love to hear what your favourites are; feel free to leave a comment!
 
-1.<b>NACHOS</b>
+1. <b>NACHOS</b>
 
 This is one of our "fun" meals that we have periodically, but it's always a hit and can have so many variations to it.
 
@@ -28,7 +28,7 @@ And because I love DIY: [DIY Nacho spice](https://www.allrecipes.com/recipe/4665
 
 ![A picture of nachos on the table.]({{ https://www.simplehomemom.github.io.com }}/images/NachosSHM.jpg) 
 
-<b>PICKY PLATES<b>
+2. <b>PICKY PLATES<b>
 
 Picky plates or finger foods are what we do for most of our lunches. I put them in a round container with separated sections. I use my picky plate planner page from my [Simple Meal Planning Guide](https://www.etsy.com/listing/1297532274/the-ultimate-simple-meal-planning-step) to plan it out. I make sure to have a variety of foods from different food groups such as:
 
