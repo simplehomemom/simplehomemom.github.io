@@ -3,7 +3,7 @@ layout: post
 title:  10 Simple and Cost Effective Family Meals
 date:   2021-05-05 03:00:00 +0000
 image:  NachosSHM.jpg
-tags:   Planning Meal Planning
+tags:   Planning Meal-planning
 ---
 I love getting meal inspiration from other families, so thought I'd write down all of our simple and cost effective family meals here for you. Hopefully you find something new to try. Tag me on [instagram @simplehomemom](https://www.instagram.com/simplehomemom) if you do! Today on the blog, I bring you: 10 simple and cost effective family meals.
 
