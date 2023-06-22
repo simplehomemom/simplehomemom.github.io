@@ -171,9 +171,9 @@ SAVE FOR FUTURE REFERENCE:
 
 ## Other help blogs I found with simple and cost effective family meals:
 
-[Healthy Dinners in 40 Minutes or Less](https://www.foodnetwork.com/healthy/packages/healthy-every-week/quick-and-simple/healthy-dinners-in-40-minutes-or-less)
-[70 Easy Healthy Dinner Ideas](https://www.delish.com/cooking/recipe-ideas/g3733/healthy-dinner-recipes/)
-[105 healthy dinners you can cook in 30 minutes](https://www.delicious.com.au/recipes/collections/gallery/60-healthy-dinners-you-can-cook-in-30-minutes/1vo4q819)
+* [Healthy Dinners in 40 Minutes or Less](https://www.foodnetwork.com/healthy/packages/healthy-every-week/quick-and-simple/healthy-dinners-in-40-minutes-or-less)
+* [70 Easy Healthy Dinner Ideas](https://www.delish.com/cooking/recipe-ideas/g3733/healthy-dinner-recipes/)
+* [105 healthy dinners you can cook in 30 minutes](https://www.delicious.com.au/recipes/collections/gallery/60-healthy-dinners-you-can-cook-in-30-minutes/1vo4q819)
 
 ### SIMPLE MEAL PLANNING GUIDE
 
