@@ -95,7 +95,7 @@ Ingredients:
 
 We use [this recipe](https://www.delish.com/cooking/recipe-ideas/a26092675/best-chicken-shawarma-recipe/) to make our chicken. We batch enough for four shawarma nights at once. For our garlic sauce, we use plain yogurt, olive oil, and blended fresh garlic.
 
-ADDING MEAL PLANNING TO YOUR DAILY ROUTINE:
+### ADDING MEAL PLANNING TO YOUR DAILY ROUTINE:
 
 If you’re stumped with meal planning and grocery planning, using one of my Simple Planners for Moms will be really helpful for you. I tend to plan my meals out weekly, and then make sure I write them down on my daily planner pages. You can find all of my Simple Planners [here](https://www.etsy.com/shop/simplehomemomshop).
 
@@ -165,7 +165,7 @@ Ingredients:
 * Serve with biscuits if you'd like!
 
 
-SAVE FOR FUTURE REFERENCE:
+### SAVE FOR FUTURE REFERENCE:
 
 ![A picture of the blog title.]({{ https://www.simplehomemom.github.io.com }}/images/10 Simple and Cost Effective Meals for Families SHM.png)  
 
