@@ -174,7 +174,6 @@ Ingredients:
 * [70 Easy Healthy Dinner Ideas](https://www.delish.com/cooking/recipe-ideas/g3733/healthy-dinner-recipes/)
 * [105 healthy dinners you can cook in 30 minutes](https://www.delicious.com.au/recipes/collections/gallery/60-healthy-dinners-you-can-cook-in-30-minutes/1vo4q819)
 
-
 <br>
 ### SIMPLE MEAL PLANNING GUIDE:
 ![A picture of a review of the Simple Meal Guide]({{ https://www.simplehomemom.github.io.com }}/images/Simple Meal Guide Review SHM.jpg) 
