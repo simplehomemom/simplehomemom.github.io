@@ -45,7 +45,7 @@ _I promise you that loop planning becomes easier with practice too!_
 
 ### FREE DAILY CHORE CHECKLIST + LOOP CHORE CHECKLIST
 
-Intriguied about loop planning after reading all that? I LOVE to use loop planning in my chore routines. You can download your free chore routine printables [HERE](http://tinyletter.com/simplehomemom) if you’d like to apply my chore method in your home. Be sure to refer back to this post about loop planning when you are starting the method out. You can also find fillable daily and loop chore checklists in my shop [HERE](https://www.etsy.com/shop/simplehomemomshop).
+Intriguied about loop planning after reading all that? I LOVE to use loop planning in my chore routines. You can download your free chore routine printables [HERE](http://simplehomemom.substack.com) if you’d like to apply my chore method in your home. Be sure to refer back to this post about loop planning when you are starting the method out. You can also find fillable daily and loop chore checklists in my shop [HERE](https://www.etsy.com/shop/simplehomemomshop).
 
 ![A picture of chore checklist printables on a table next to a plant.]({{ https://www.simplehomemom.github.io.com }}/images/chore-checklist.jpg) 
 
